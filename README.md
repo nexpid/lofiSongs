@@ -1,3 +1,3 @@
 # LofiSongs
 
-just a giant frikking list of lofi songs
+just a giant list of lofi songs
